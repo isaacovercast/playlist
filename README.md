@@ -2,8 +2,6 @@
 
 [Tegh & Adel Poursamadi - Ima (ایما)](https://tegh.bandcamp.com/album/ima)
 
-[Incapacitants - Feedback of N.M.S.](https://urashima.bandcamp.com/album/feedback-of-n-m-s)
-
 [The Lord † Petra Haden - Devotional](https://thelordsl.bandcamp.com/album/devotional)
 
 [Gammelsæter & Marhaug - Higgs Boson](https://ideologicorgan.bandcamp.com/album/higgs-boson)
@@ -13,6 +11,8 @@
 [Arthur Russell - Picture of bunny rabbit](https://arthurrussell.bandcamp.com/album/picture-of-bunny-rabbit)
 
 [V/A - Femirama](https://munsterrecords.bandcamp.com/album/femirama)
+
+[Incapacitants - Feedback of N.M.S.](https://urashima.bandcamp.com/album/feedback-of-n-m-s)
 
 [Big Blood - First aid kit](https://dontrustheruin.bandcamp.com/album/first-aid-kit)
 
