@@ -1,5 +1,7 @@
 # playlist
 
+[Éliane Radigue - Feedback Works (1969 - 1970)](https://elianeradigue.bandcamp.com/album/feedback-works-1969-1970)
+
 [Tegh & Adel Poursamadi - Ima (ایما)](https://tegh.bandcamp.com/album/ima)
 
 [The Lord † Petra Haden - Devotional](https://thelordsl.bandcamp.com/album/devotional)
