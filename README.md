@@ -1,6 +1,11 @@
 # playlist
 
 ## June 2023
+
+[Arthur Russel - Picture of Bunny Rabbit](https://arthurrussell.bandcamp.com/album/picture-of-bunny-rabbit)
+
+Swans - Deliquescence
+
 [Alina Kalancea - Alchemy](https://imprec.bandcamp.com/album/alchemy)
 
 [THURSTON MOORE/SAMARA LUBELSKI/BILL NACE - Live at the Stone](https://decimus.bandcamp.com/album/live-at-the-stone)
@@ -58,4 +63,6 @@
 [Elori Saxl - The Blue of Distance](https://elorisaxl.bandcamp.com/album/the-blue-of-distance)
 
 # Movies
-[Enys Men](https://www.enysmen.co.uk/?fbclid=PAAaZgCTd7yEaSIGKB7YNp45Yp3E1IOCDIhtsCF_jj_MduCcv78YpLeeFv5Mg)
+* [Enys Men](https://www.enysmen.co.uk/?fbclid=PAAaZgCTd7yEaSIGKB7YNp45Yp3E1IOCDIhtsCF_jj_MduCcv78YpLeeFv5Mg)
+* [Save yourselves!](https://www.imdb.com/title/tt7873348/)
+* [Neptune Frost](https://www.imdb.com/title/tt11873472/)
