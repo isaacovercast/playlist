@@ -1,5 +1,9 @@
 # playlist
 
+## July 2023
+
+[Joseph of Kirezi](https://cful.bandcamp.com/album/joseph-of-kirezi-the-only-way-out-is-through-bleeding-jam-vol-1)
+
 ## June 2023
 
 [Arthur Russel - Picture of Bunny Rabbit](https://arthurrussell.bandcamp.com/album/picture-of-bunny-rabbit)
