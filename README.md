@@ -6,8 +6,6 @@
 
 [Coil - The Ape of Naples](https://infinitefog.bandcamp.com/album/the-ape-of-naples)
 
-[Metro Area - Metro Area](https://metroarea.bandcamp.com/album/metro-area-15th-anniversary-edition)
-
 [Joseph of Kirezi - The only way out is through](https://cful.bandcamp.com/album/joseph-of-kirezi-the-only-way-out-is-through-bleeding-jam-vol-1)
 
 ## June 2023
