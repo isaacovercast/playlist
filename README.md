@@ -1,5 +1,9 @@
 # playlist
 
+## Aug 2023
+
+[JEFFREY LEE PIERCE - WILDWEED](https://www.youtube.com/watch?v=YVtyfPwjGjY&t=6s)
+
 ## July 2023
 
 [The Jeffrey Lee Pierce Sessions Project - The Task has Overhwelmed Us](https://glitterhouserecords.bandcamp.com/album/the-task-has-overwhelmed-us)
