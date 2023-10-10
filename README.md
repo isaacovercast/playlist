@@ -2,7 +2,9 @@
 
 ## Sept 2023
 
-[Molly Nilsson (Bandcamp)](https://mollynilsson.bandcamp.com/music)
+[Marta De Pascalis - Sonus Ruinae](https://maesia.bandcamp.com/album/sonus-ruinae)
+
+[Molly Nilsson (Bandcamp)](https://mollynilsson.bandcamp.com/music) - [Zenith](https://mollynilsson.bandcamp.com/album/zenith) is good.
 
 [Raum - Daughter](https://grouper.bandcamp.com/album/daughter)
 
