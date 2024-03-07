@@ -1,5 +1,14 @@
 # playlist
 
+## March 2024
+[Kopy - Heart Fresh](https://kopymusic.bandcamp.com/album/heart-fresh)
+
+[Schatterau - Schatterau](https://schatterau.bandcamp.com/album/schatterau)
+
+[Kara-Lis Coverdale and LXV - Sirens](https://www.anost.net/release/2706/kara-lis-coverdale-and-lxv%2fsirens)
+
+[Opuntia - Mercurio](https://www.anost.net/release/00C4/opuntia%2fmercurio#ref=nl)
+
 ## Sept 2023
 
 [Marta De Pascalis - Sonus Ruinae](https://maesia.bandcamp.com/album/sonus-ruinae)
