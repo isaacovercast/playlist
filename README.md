@@ -1,5 +1,11 @@
 # playlist
 
+## April 2024
+
+[Shiloh Dynasty - Tastes Like Velvet](https://www.youtube.com/watch?v=PO_nZOsXyvg)
+
+[Post Neo - Alles Immer Wieder](https://postneo.bandcamp.com/album/alles-immer-wieder)
+
 ## March 2024
 [Kopy - Heart Fresh](https://kopymusic.bandcamp.com/album/heart-fresh)
 
