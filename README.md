@@ -1,5 +1,12 @@
 # playlist
 
+## May 2024
+
+[Arthur Russell - Instrumentals](https://arthurrussell.bandcamp.com/album/instrumentals)
+
+[Sky Girl: Compiled by Julien Dechery and DJ Sundae](https://efficientspace.bandcamp.com/album/sky-girl-compiled-by-julien-dechery-and-dj-sundae)
+* 'I Wouldn't Dream Of It' & 'Drive (Down)' are good
+
 ## April 2024
 
 [Shiloh Dynasty - Tastes Like Velvet](https://www.youtube.com/watch?v=PO_nZOsXyvg)
