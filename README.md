@@ -6,6 +6,8 @@
 
 [Post Neo - Alles Immer Wieder](https://postneo.bandcamp.com/album/alles-immer-wieder)
 
+[Jlin - Akoma](https://jlin.bandcamp.com/album/akoma)
+
 ## March 2024
 [Kopy - Heart Fresh](https://kopymusic.bandcamp.com/album/heart-fresh)
 
