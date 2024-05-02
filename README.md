@@ -2,6 +2,10 @@
 
 ## May 2024
 
+[Emahoy Tsege Mariam Gebru - Souvenirs](https://emahoytsegemariamgebru.bandcamp.com/album/souvenirs)
+
+[helen island - last liasse](https://triggermoral.bandcamp.com/album/last-liasse)
+
 [LA FEMME - Myst​è​re](https://lafemmeressort.bandcamp.com/album/myst-re)
 
 [Arthur Russell - Instrumentals](https://arthurrussell.bandcamp.com/album/instrumentals)
