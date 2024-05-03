@@ -1,6 +1,7 @@
 # playlist
 
 ## May 2024
+[Silent Servant - Negative Fascination](https://hospitalproductions.bandcamp.com/album/negative-fascination-expanded)
 
 [Suicide - The First Rehearsal Tapes 1975](https://www.youtube.com/watch?v=GSaO5hJk450)
 
