@@ -2,6 +2,8 @@
 
 ## May 2024
 
+[Suicide - The First Rehearsal Tapes 1975](https://www.youtube.com/watch?v=GSaO5hJk450)
+
 [Emahoy Tsege Mariam Gebru - Souvenirs](https://emahoytsegemariamgebru.bandcamp.com/album/souvenirs)
 
 [helen island - last liasse](https://triggermoral.bandcamp.com/album/last-liasse)
