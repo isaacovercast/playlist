@@ -1,6 +1,10 @@
 # playlist
 
 ## May 2024
+[Svitlana Nianio - Transilvania Smile](https://shukai.bandcamp.com/album/transilvania-smile-1994)
+
+[Cukor Bila Smert - Recordings 1990​—​1993](https://shukai.bandcamp.com/album/recordings-1990-1993)
+
 [Silent Servant - Negative Fascination](https://hospitalproductions.bandcamp.com/album/negative-fascination-expanded)
 
 [Suicide - The First Rehearsal Tapes 1975](https://www.youtube.com/watch?v=GSaO5hJk450)
