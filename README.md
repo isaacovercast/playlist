@@ -2,6 +2,8 @@
 
 ## May 2024
 
+[Jackson C Frank - Mystery](https://open.spotify.com/album/0jrjBTmSRS2XblJ76CTxo4)
+
 [Thomas Dinger - F​ü​r mich](https://thomasdinger.bandcamp.com/album/f-r-mich) - Kosmische
 
 [Ksi​ę​ż​yc - Księżyc](https://ksiezyc2.bandcamp.com/album/ksi-yc) <- Never forget
