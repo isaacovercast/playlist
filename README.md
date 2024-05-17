@@ -2,9 +2,13 @@
 
 ## May 2024
 
+[Holy Springs - E.A.T.](https://holysprings.bandcamp.com/album/e-a-t) - MBV-ish
+
+[Mark Fry - Dreaming with Alice](https://merlinsnoserecords.bandcamp.com/album/dreaming-with-alice)
+
 [Jackson C Frank - Mystery](https://open.spotify.com/album/0jrjBTmSRS2XblJ76CTxo4)
 
-[Thomas Dinger - F​ü​r mich](https://thomasdinger.bandcamp.com/album/f-r-mich) - Kosmische
+[Thomas Dinger - F​ü​r mich](https://thomasdinger.bandcamp.com/album/f-r-mich) <- Kosmische
 
 [Ksi​ę​ż​yc - Księżyc](https://ksiezyc2.bandcamp.com/album/ksi-yc) <- Never forget
 
