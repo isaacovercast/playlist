@@ -1,5 +1,9 @@
 # playlist
 
+## June 2024
+
+[Skeet - Simple Reality](https://www.forcedexposure.com/Catalog/skeet-simple-reality-lp/EFFICIENT.038LP.html) - ~Young Marble Giants
+
 ## May 2024
 
 [Holy Springs - E.A.T.](https://holysprings.bandcamp.com/album/e-a-t) - MBV-ish
