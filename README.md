@@ -1,5 +1,11 @@
 # playlist
 
+## July 2024
+
+[KMRU - Peel](https://kmru.bandcamp.com/album/peel)
+
+[Manuel Göttsching — E2-E4](https://www.youtube.com/watch?v=Vq-kovIr2BE)
+
 ## June 2024
 
 [Skeet - Simple Reality](https://www.forcedexposure.com/Catalog/skeet-simple-reality-lp/EFFICIENT.038LP.html) - ~Young Marble Giants
