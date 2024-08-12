@@ -2,6 +2,8 @@
 
 ## August 2024
 
+[Suzanne Ciani - Buchla Concert At Galeria Bonino New York April 1974](https://suzanneciani.bandcamp.com/album/buchla-concert-at-galeria-bonino-new-york-april-1974)
+
 [Amery - Continue As Amery](https://monorailmusic.com/product/continue-as-amery/)
 
 ## July 2024
