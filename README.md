@@ -1,5 +1,9 @@
 # playlist
 
+## August 2024
+
+[Amery - Continue As Amery](https://monorailmusic.com/product/continue-as-amery/)
+
 ## July 2024
 
 [KMRU - Peel](https://kmru.bandcamp.com/album/peel)
