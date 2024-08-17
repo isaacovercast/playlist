@@ -2,6 +2,12 @@
 
 ## August 2024
 
+[Thomas Bangalter - CHIROPTERA MATIERE PREMIERE](https://www.youtube.com/watch?v=0srIRAx9bhk)
+
+[Alessandro Cortini  - Nati Infiniti Live](https://www.youtube.com/watch?v=U9ERRV2SEj0&t=6s)
+
+[Bibi Flash - Histoire d'1 soir (Bye bye les galères)](https://www.youtube.com/watch?v=I-980vITEtI&t=12s)
+
 [Suzanne Ciani - Buchla Concert At Galeria Bonino New York April 1974](https://suzanneciani.bandcamp.com/album/buchla-concert-at-galeria-bonino-new-york-april-1974)
 
 [Amery - Continue As Amery](https://monorailmusic.com/product/continue-as-amery/)
