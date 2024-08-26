@@ -2,6 +2,8 @@
 
 ## August 2024
 
+[Puce Mary - Success](https://puce-mary.bandcamp.com/album/success)
+
 [Thomas Bangalter - CHIROPTERA MATIERE PREMIERE](https://www.youtube.com/watch?v=0srIRAx9bhk)
 
 [Alessandro Cortini  - Nati Infiniti Live](https://www.youtube.com/watch?v=U9ERRV2SEj0&t=6s)
