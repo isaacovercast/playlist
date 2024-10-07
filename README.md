@@ -1,5 +1,10 @@
 # playlist
 
+## October 2024
+[Pita - Get Out](https://pitaemego.bandcamp.com/album/get-out) <- Get Out 3
+
+[Alessandro Cortini - Forse 3](https://cortini.bandcamp.com/album/forse-3)
+
 ## August 2024
 
 [Coil - Moon's Milk (In Four Phases)](https://coilofficial.bandcamp.com/album/moons-milk-in-four-phases)
