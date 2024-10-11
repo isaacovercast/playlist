@@ -1,6 +1,9 @@
 # playlist
 
 ## October 2024
+[Catherine Christer Hennix - BandCamp Catalog](https://daily.bandcamp.com/lists/catherine-christer-hennix-album-guide)
+* [The Electric Harpsichord](https://www.youtube.com/watch?v=VL9O27untYk)
+
 [Pita - Get Out](https://pitaemego.bandcamp.com/album/get-out) <- Get Out 3
 
 [Alessandro Cortini - Forse 3](https://cortini.bandcamp.com/album/forse-3)
