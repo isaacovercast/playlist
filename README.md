@@ -1,6 +1,9 @@
 # playlist
 
 ## October 2024
+
+[Ibukun Sunday - Harmony / Balance](https://phantomlimblabel.bandcamp.com/album/harmony-balance)
+
 [Catherine Christer Hennix - BandCamp Catalog](https://daily.bandcamp.com/lists/catherine-christer-hennix-album-guide)
 * [The Electric Harpsichord](https://www.youtube.com/watch?v=VL9O27untYk)
 
