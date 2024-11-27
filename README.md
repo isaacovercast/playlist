@@ -4,6 +4,8 @@
 
 [Tristwch Y Fenywod - Tristwch Y Fenywod](https://night-school.bandcamp.com/album/tristwch-y-fenywod) <- Ksi​ę​ż​yc/FITH adjacent
 
+[Günter Schickert - Samtvogel](https://imprec.bandcamp.com/album/samtvogel) & [Überf​ä​llig](https://gnterschickert.bandcamp.com/album/berf-llig)
+
 ## October 2024
 
 [Ibukun Sunday - Harmony / Balance](https://phantomlimblabel.bandcamp.com/album/harmony-balance)
