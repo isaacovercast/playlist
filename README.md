@@ -20,6 +20,7 @@
 ## August 2024
 
 [Coil - Moon's Milk (In Four Phases)](https://coilofficial.bandcamp.com/album/moons-milk-in-four-phases)
+
 [Puce Mary - Success](https://puce-mary.bandcamp.com/album/success)
 
 [Thomas Bangalter - CHIROPTERA MATIERE PREMIERE](https://www.youtube.com/watch?v=0srIRAx9bhk)
