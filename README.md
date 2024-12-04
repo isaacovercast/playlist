@@ -1,5 +1,11 @@
 # playlist
 
+## December 2024
+
+[Wolfgang Voigt - Mit Maschinen Sprechen](https://wolfgangvoigt.bandcamp.com/album/mit-maschinen-sprechen) <- "33 abstrakte, elektronische Arpeggiator Klangfresken aus dem Jahr 1995."
+
+[Cluster - Grosses Wasser](https://clusterofficial.bandcamp.com/album/grosses-wasser)
+
 ## November 2024
 
 [Tristwch Y Fenywod - Tristwch Y Fenywod](https://night-school.bandcamp.com/album/tristwch-y-fenywod) <- Ksi​ę​ż​yc/FITH adjacent
