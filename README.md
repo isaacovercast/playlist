@@ -2,6 +2,8 @@
 
 ## December 2024
 
+[Clothilde - Cross Sections](https://holuzam.bandcamp.com/album/cross-sections)
+
 [Wolfgang Voigt - Mit Maschinen Sprechen](https://wolfgangvoigt.bandcamp.com/album/mit-maschinen-sprechen) <- "33 abstrakte, elektronische Arpeggiator Klangfresken aus dem Jahr 1995."
 
 [Cluster - Grosses Wasser](https://clusterofficial.bandcamp.com/album/grosses-wasser)
