@@ -2,6 +2,9 @@
 
 ## December 2024
 
+
+[System Olympia - Delta Of Venus](https://systemolympia.bandcamp.com/album/delta-of-venus) 
+
 [Roberto Cacciapaglia - Sei Note In Logica](https://www.youtube.com/watch?v=PNGclqV8tOQ)
 
 [Clothilde - Cross Sections](https://holuzam.bandcamp.com/album/cross-sections)
