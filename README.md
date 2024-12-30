@@ -2,6 +2,7 @@
 
 ## December 2024
 
+[CHAMOUN / SAHYOUN / ATOUI - Ghadr](https://rupturedthelabel.bandcamp.com/album/ghadr)
 
 [System Olympia - Delta Of Venus](https://systemolympia.bandcamp.com/album/delta-of-venus) 
 
