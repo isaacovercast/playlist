@@ -2,6 +2,8 @@
 
 ## December 2024
 
+[Deutsche Wertarbeit - Deutsche Wertarbeit](https://deutschewertarbeit.bandcamp.com/album/deutsche-wertarbeit)
+
 [CHAMOUN / SAHYOUN / ATOUI - Ghadr](https://rupturedthelabel.bandcamp.com/album/ghadr)
 
 [System Olympia - Delta Of Venus](https://systemolympia.bandcamp.com/album/delta-of-venus) 
