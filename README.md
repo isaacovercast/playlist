@@ -1,5 +1,10 @@
 # playlist
 
+## January 2025
+
+
+[Aleksandra Słyż - Tonarium Live](https://slyzaleksandra.bandcamp.com/album/tonarium-live)
+
 ## December 2024
 
 [Deutsche Wertarbeit - Deutsche Wertarbeit](https://deutschewertarbeit.bandcamp.com/album/deutsche-wertarbeit)
