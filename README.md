@@ -3,6 +3,8 @@
 ## January 2025
 
 
+[Ellen Fullman - In The Sea](https://ellenfullman-sv.bandcamp.com/album/in-the-sea)
+
 [Aleksandra Słyż - Tonarium Live](https://slyzaleksandra.bandcamp.com/album/tonarium-live)
 
 ## December 2024
