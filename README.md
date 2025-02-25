@@ -1,7 +1,20 @@
 # playlist
 
-## January 2025
+## February 2025
 
+[Brannten Schnüre - Aprilnacht](https://aguirrerecords.bandcamp.com/album/aprilnacht-2) <- Coil/FITH adjacent  
+[Brannten Schnüre – Muschelsammlung](https://www.enfant-terrible.nl/releases/brannten-schnure-muschelsammlung/) 
+
+[Wrekmeister Harmonies - Flowers in the Spring](https://wrekmeisterharmonies.bandcamp.com/album/flowers-in-the-spring)
+
+[Saba Alizadeh - Temple Of Hope](https://sabaalizadeh.bandcamp.com/album/temple-of-hope) 
+
+[Steve Roden - Forms of Paper](https://lineimprint.bandcamp.com/album/forms-of-paper-2024-remaster)
+
+[Corps Diplomatique - Dans Ta Nuit](https://corpsdiplomatique.bandcamp.com/album/dans-ta-nuit) <- 80s French gothic new wave
+  * [La Muse Vénale (Full Compilation, 1985)](https://www.youtube.com/watch?v=kDYgHT2Ok7A) <- A whole comp of this
+
+## January 2025
 
 [Ellen Fullman - In The Sea](https://ellenfullman-sv.bandcamp.com/album/in-the-sea)
 
