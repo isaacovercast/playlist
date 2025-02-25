@@ -3,7 +3,8 @@
 ## February 2025
 
 [Brannten Schnüre - Aprilnacht](https://aguirrerecords.bandcamp.com/album/aprilnacht-2) <- Coil/FITH adjacent  
-[Brannten Schnüre – Muschelsammlung](https://www.enfant-terrible.nl/releases/brannten-schnure-muschelsammlung/) 
+[Brannten Schnüre – Muschelsammlung](https://www.enfant-terrible.nl/releases/brannten-schnure-muschelsammlung/)  
+[Gespensterland (Compilation on Bureau B)](https://bureaub.bandcamp.com/album/gespensterland)
 
 [Wrekmeister Harmonies - Flowers in the Spring](https://wrekmeisterharmonies.bandcamp.com/album/flowers-in-the-spring)
 
