@@ -1,5 +1,12 @@
 # playlist
 
+## March 2025
+
+[Flutter Ridder - Flutter Ridder](https://flutterridder.bandcamp.com/album/flutter-ridder) <- Kali Malone vibes  
+[Bronski Beat - The Age Of Consent](https://bronskibeat.bandcamp.com/album/the-age-of-consent-remastered-expanded) <- Where has this been all my life???  
+[Peter Rehberg - Liminal States](https://peterrehberg.bandcamp.com/album/liminal-states) <- Time Machines  
+[Coil - Constant Shallowness Leads to Evil](https://coilofficial.bandcamp.com/album/constant-shallowness-leads-to-evil)
+
 ## February 2025
 
 [Brannten Schnüre - Aprilnacht](https://aguirrerecords.bandcamp.com/album/aprilnacht-2) <- Coil/FITH adjacent  
