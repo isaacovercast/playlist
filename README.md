@@ -1,5 +1,9 @@
 # playlist
 
+## April 2025
+
+[Repetition Repetition - Fit for Consequences: Original Recordings, 1984–1987](https://freedomtospend.bandcamp.com/album/fit-for-consequences-original-recordings-1984-1987) <- Gives Rod Hamilton & Tiffany Seal
+
 ## March 2025
 
 [Angels Of Light - We Are Him](https://angelsoflight.bandcamp.com/album/we-are-him-2022-remaster) <- Still good
