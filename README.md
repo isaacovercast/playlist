@@ -2,6 +2,8 @@
 
 ## April 2025
 
+[Dali Muru & The Polyphonic Swarm - Murmur Of The Bath Spirits](https://stroomtv.bandcamp.com/album/murmur-of-the-bath-spirits)
+
 [Dali Muru & The Polyphonic Swarm](https://stroomtv.bandcamp.com/album/dali-muru-the-polyphonic-swarm) <- THE LOST FITH RECORD!
 
 [Nicolás Melmann - Música Aperta](https://melmann.bandcamp.com/album/m-sica-aperta)
