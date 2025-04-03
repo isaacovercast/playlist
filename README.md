@@ -2,6 +2,7 @@
 
 ## April 2025
 
+[Dali Muru & The Polyphonic Swarm](https://stroomtv.bandcamp.com/album/dali-muru-the-polyphonic-swarm) <- THE LOST FITH RECORD!
 
 [Nicolás Melmann - Música Aperta](https://melmann.bandcamp.com/album/m-sica-aperta)
 
