@@ -4,6 +4,8 @@
 [Emahoy Tsege Mariam Gebru - Church of Kidane Mehret](https://emahoytsegemariamgebru.bandcamp.com/album/church-of-kidane-mehret)
 [Repetition Repetition - Fit for Consequences: Original Recordings, 1984–1987(https://freedomtospend.bandcamp.com/album/fit-for-consequences-original-recordings-1984-1987)
 
+[Repetition Repetition - Fit for Consequences: Original Recordings, 1984–1987](https://freedomtospend.bandcamp.com/album/fit-for-consequences-original-recordings-1984-1987) <- Gives Rod Hamilton & Tiffany Seal
+
 ## April 2025
 
 [Dali Muru & The Polyphonic Swarm - Murmur Of The Bath Spirits](https://stroomtv.bandcamp.com/album/murmur-of-the-bath-spirits) (Companion book: [The Swarm by Dalia Neis](https://theelephants.net/ephemera/the-swarm))
@@ -11,8 +13,6 @@
 [Dali Muru & The Polyphonic Swarm](https://stroomtv.bandcamp.com/album/dali-muru-the-polyphonic-swarm) <- THE LOST FITH RECORD!
 
 [Nicolás Melmann - Música Aperta](https://melmann.bandcamp.com/album/m-sica-aperta)
-
-[Repetition Repetition - Fit for Consequences: Original Recordings, 1984–1987](https://freedomtospend.bandcamp.com/album/fit-for-consequences-original-recordings-1984-1987) <- Gives Rod Hamilton & Tiffany Seal
 
 ## March 2025
 
