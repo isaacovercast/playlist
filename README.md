@@ -1,5 +1,8 @@
 # playlist
 
+## May 2025
+[Emahoy Tsege Mariam Gebru - Church of Kidane Mehret](https://emahoytsegemariamgebru.bandcamp.com/album/church-of-kidane-mehret)
+
 ## April 2025
 
 [Dali Muru & The Polyphonic Swarm - Murmur Of The Bath Spirits](https://stroomtv.bandcamp.com/album/murmur-of-the-bath-spirits) (Companion book: [The Swarm by Dalia Neis](https://theelephants.net/ephemera/the-swarm))
