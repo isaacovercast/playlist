@@ -2,6 +2,7 @@
 
 ## May 2025
 [Emahoy Tsege Mariam Gebru - Church of Kidane Mehret](https://emahoytsegemariamgebru.bandcamp.com/album/church-of-kidane-mehret)
+[Repetition Repetition - Fit for Consequences: Original Recordings, 1984–1987(https://freedomtospend.bandcamp.com/album/fit-for-consequences-original-recordings-1984-1987)
 
 ## April 2025
 
