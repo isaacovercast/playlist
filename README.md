@@ -1,11 +1,19 @@
 # playlist
 
+## June 2025
+
+[Brìghde Chaimbeul - Sunwise](https://brighdechaimbeul.bandcamp.com/album/sunwise)
+
 ## May 2025
 [Emahoy Tsege Mariam Gebru - Church of Kidane Mehret](https://emahoytsegemariamgebru.bandcamp.com/album/church-of-kidane-mehret)
 
 [Repetition Repetition - Fit for Consequences: Original Recordings, 1984–1987](https://freedomtospend.bandcamp.com/album/fit-for-consequences-original-recordings-1984-1987) <- Gives Rod Hamilton & Tiffany Seal
 
 ## April 2025
+
+[Spiteful Womb - Interior Castle](https://spitefulwomb.bandcamp.com/album/interior-castle) <- Pharmakon adjacent
+
+[Brìghde Chaimbeul - Carry Them With Us](https://brighdechaimbeul.bandcamp.com/album/carry-them-with-us) < Instant classic
 
 [Dali Muru & The Polyphonic Swarm - Murmur Of The Bath Spirits](https://stroomtv.bandcamp.com/album/murmur-of-the-bath-spirits) (Companion book: [The Swarm by Dalia Neis](https://theelephants.net/ephemera/the-swarm))
 
