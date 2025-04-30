@@ -13,6 +13,8 @@
 
 ## April 2025
 
+[helen island - silence is priceless](https://triggermoral.bandcamp.com/album/silence-is-priceless)
+
 [Pyrolator - Inland](https://pyrolator.bandcamp.com/album/inland-bonus-edition)
 
 [Spiteful Womb - Interior Castle](https://spitefulwomb.bandcamp.com/album/interior-castle) <- Pharmakon adjacent
