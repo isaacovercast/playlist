@@ -13,6 +13,8 @@
 
 ## April 2025
 
+[Pyrolator - Inland](https://pyrolator.bandcamp.com/album/inland-bonus-edition)
+
 [Spiteful Womb - Interior Castle](https://spitefulwomb.bandcamp.com/album/interior-castle) <- Pharmakon adjacent
 
 [Brìghde Chaimbeul - Carry Them With Us](https://brighdechaimbeul.bandcamp.com/album/carry-them-with-us) < Instant classic
