@@ -7,6 +7,13 @@
 [Brìghde Chaimbeul - Sunwise](https://brighdechaimbeul.bandcamp.com/album/sunwise)
 
 ## May 2025
+
+[Tristan Perich - Drift Multiply](https://tristanperich.bandcamp.com/album/drift-multiply) <- 50 violins @ Church of St John the Divine (2018)
+
+[Tristan Perich - Surface Image (performed by Vicky Chow)](https://www.youtube.com/watch?v=K5cHsBGNEWA) <- Glass-like
+
+[Ø (Mika Vainio) - Metri](https://sahkorecordings.bandcamp.com/album/metri)
+
 [Emahoy Tsege Mariam Gebru - Church of Kidane Mehret](https://emahoytsegemariamgebru.bandcamp.com/album/church-of-kidane-mehret)
 
 [Repetition Repetition - Fit for Consequences: Original Recordings, 1984–1987](https://freedomtospend.bandcamp.com/album/fit-for-consequences-original-recordings-1984-1987) <- Gives Rod Hamilton & Tiffany Seal
