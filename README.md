@@ -29,7 +29,7 @@
 
 ## March 2025
 
-[Angels Of Light - We Are Him](https://angelsoflight.bandcamp.com/album/we-are-him-2022-remaster) <- Still good
+[Angels Of Light - We Are Him](https://angelsoflight.bandcamp.com/album/we-are-him-2022-remaster) <- Still good  
 [Flutter Ridder - Flutter Ridder](https://flutterridder.bandcamp.com/album/flutter-ridder) <- Kali Malone vibes  
 [Bronski Beat - The Age Of Consent](https://bronskibeat.bandcamp.com/album/the-age-of-consent-remastered-expanded) <- Where has this been all my life???  
 [Peter Rehberg - Liminal States](https://peterrehberg.bandcamp.com/album/liminal-states) <- Time Machines  
