@@ -181,7 +181,8 @@
 
 ## Aug 2023
 
-[JEFFREY LEE PIERCE - WILDWEED](https://www.youtube.com/watch?v=YVtyfPwjGjY&t=6s)
+[JEFFREY LEE PIERCE - WILDWEED](https://www.youtube.com/watch?v=YVtyfPwjGjY&t=6s)  
+[Jeffrey Lee Pierce - Six String Sermon](https://www.youtube.com/watch?v=ecsQHfQb1yA)
 
 ## July 2023
 
