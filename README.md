@@ -116,7 +116,8 @@
 
 [KMRU - Peel](https://kmru.bandcamp.com/album/peel)
 
-[Manuel Göttsching — E2-E4](https://www.youtube.com/watch?v=Vq-kovIr2BE)
+[Manuel Göttsching — E2-E4](https://www.youtube.com/watch?v=Vq-kovIr2BE)  
+[Manuel Göttsching - Inventions for Electric Guitar](https://www.youtube.com/watch?v=khejrbgdc4w)
 
 ## June 2024
 
