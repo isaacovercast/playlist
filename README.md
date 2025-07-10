@@ -2,6 +2,8 @@
 
 ## July 2025
 
+[LINTD - DOGTOOTH. And Other Such Tales of The Macabre](https://sickoflintd.bandcamp.com/album/dogtooth-and-other-such-tales-of-the-macabre) <- "gothic experimental" but in a very contemporary way
+
 [LA Timpa - Time of Marcker](https://latimpa.bandcamp.com/album/time-of-marcker) <- Arthur Russel x Klein
 
 [Colette Roper - Piano Pieces](https://art-into-life.bandcamp.com/album/piano-pieces) <- rough-hewn piano minimalism with a lot of hiss and fragile innocence
