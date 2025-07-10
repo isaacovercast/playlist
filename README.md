@@ -1,7 +1,15 @@
 # playlist
 
-## June 2025
+## July 2025
 
+
+[Colette Roper - Piano Pieces](https://art-into-life.bandcamp.com/album/piano-pieces) <- rough-hewn piano minimalism with a lot of hiss and fragile innocence
+
+[Dedalus Ensemble - Performing Philip Glass: Music with Changing Parts](https://subrosalabel.bandcamp.com/album/performing-philip-glass-music-with-changing-parts)
+
+[Samara Lubelski & Bill Nace - 43/80](https://threelobed.bandcamp.com/album/43-80)
+
+## June 2025
 
 [Julius Eastman - Three Extended Pieces For Four Pianos](https://subrosalabel.bandcamp.com/album/three-extended-pieces-for-four-pianos)
  
@@ -41,7 +49,9 @@
 
 [Angels Of Light - We Are Him](https://angelsoflight.bandcamp.com/album/we-are-him-2022-remaster) <- Still good  
 [Flutter Ridder - Flutter Ridder](https://flutterridder.bandcamp.com/album/flutter-ridder) <- Kali Malone vibes  
-[Bronski Beat - The Age Of Consent](https://bronskibeat.bandcamp.com/album/the-age-of-consent-remastered-expanded) <- Where has this been all my life???  
+[Bronski Beat - The Age Of Consent](https://bronskibeat.bandcamp.com/album/the-age-of-consent-remastered-expanded) <- Where has this been all my life???
+* [Bronski Beat - Forbidden Fruit - The Age of Consent Remixed](https://bronskibeat.bandcamp.com/album/forbidden-fruit-the-age-of-consent-remixed-1)
+
 [Peter Rehberg - Liminal States](https://peterrehberg.bandcamp.com/album/liminal-states) <- Time Machines  
 [Coil - Constant Shallowness Leads to Evil](https://coilofficial.bandcamp.com/album/constant-shallowness-leads-to-evil)
 
