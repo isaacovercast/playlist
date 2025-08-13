@@ -1,7 +1,10 @@
 # playlist
 
-## July 2025
+## August 2025
 
+[Willem Nyland - Piano Studies 337](https://psychicsounds.bandcamp.com/album/piano-studies-337)
+
+## July 2025
 
 [Decadence - Deux](https://mw-deux.bandcamp.com/album/decadence) <- Early 80s French Proto-Cold Cave
 
