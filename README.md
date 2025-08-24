@@ -2,6 +2,12 @@
 
 ## August 2025
 
+[Marc And The Mambas - Three Black Nights Of Little Black Bites](https://coldspring.bandcamp.com/album/three-black-nights-of-little-black-bites-csr350lp)
+
+[Dorothy Carter - Waillee Waillee](https://paltoflats.bandcamp.com/album/waillee-waillee-2)
+
+[William Basinski - The Disintegration Loops IV](https://williambasinski.bandcamp.com/album/the-disintegration-loops-iv)
+
 [Willem Nyland - Piano Studies 337](https://psychicsounds.bandcamp.com/album/piano-studies-337)
 
 ## July 2025
