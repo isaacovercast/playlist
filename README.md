@@ -1,5 +1,9 @@
 # playlist
 
+## September 2025
+
+[Cortex - Cortex](https://camisolerecords.bandcamp.com/album/cortex)
+
 ## August 2025
 
 [Marc And The Mambas - Three Black Nights Of Little Black Bites](https://coldspring.bandcamp.com/album/three-black-nights-of-little-black-bites-csr350lp)
