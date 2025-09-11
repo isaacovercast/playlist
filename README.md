@@ -1,8 +1,12 @@
 # playlist
 
+## November 2025
+
+[Kali Malone + Drew McDowall - Magnetism](https://kalimalone.bandcamp.com/album/magnetism) <- Releases Nov 9th 2025
+
 ## September 2025
 
-[Cortex - Cortex](https://camisolerecords.bandcamp.com/album/cortex)
+[Cortex - Cortex](https://camisolerecords.bandcamp.com/album/cortex) <- Reminds me of Brigitte Fontaine
 
 ## August 2025
 
