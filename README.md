@@ -2,6 +2,10 @@
 
 ## November 2025
 
+[VALISE - Live at Pioneer Works](https://valise.bandcamp.com/album/valise-live-at-pioneer-works) <- Humanbeast singer
+
+[The Threshold HouseBoys Choir - Form Grows Rampant](https://mentalgroove.bandcamp.com/album/form-grows-rampant) <- Peter Christopherson solo. 2nd & 3rd songs are good
+
 [Kali Malone + Drew McDowall - Magnetism](https://kalimalone.bandcamp.com/album/magnetism) <- Releases Nov 9th 2025
 
 ## September 2025
