@@ -2,6 +2,8 @@
 
 ## November 2025
 
+[Nero Kane - Of Knowledge and Revelation](https://nerokane.bandcamp.com/album/of-knowledge-and-revelation) <- Witchy
+
 [VALISE - Live at Pioneer Works](https://valise.bandcamp.com/album/valise-live-at-pioneer-works) <- Humanbeast singer
 
 [The Threshold HouseBoys Choir - Form Grows Rampant](https://mentalgroove.bandcamp.com/album/form-grows-rampant) <- Peter Christopherson solo. 2nd & 3rd songs are good
