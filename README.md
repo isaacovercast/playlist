@@ -2,7 +2,9 @@
 
 ## November 2025
 
-[Nero Kane - Of Knowledge and Revelation](https://nerokane.bandcamp.com/album/of-knowledge-and-revelation) <- Witchy
+[feeo - Goodness](https://feeo.bandcamp.com/album/goodness) <- Shiloh Dynasty adjacent
+
+[Nero Kane - Of Knowledge and Revelation](https://nerokane.bandcamp.com/album/of-knowledge-and-revelation) <- Witchy (FITH adjacent)
 
 [VALISE - Live at Pioneer Works](https://valise.bandcamp.com/album/valise-live-at-pioneer-works) <- Humanbeast singer
 
