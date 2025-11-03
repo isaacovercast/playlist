@@ -2,7 +2,7 @@
 
 ## November 2025
 
-[feeo - Goodness](https://feeo.bandcamp.com/album/goodness) <- Shiloh Dynasty adjacent
+[feeo - Goodness](https://feeo.bandcamp.com/album/goodness) <- Shiloh Dynasty / FKA Twigs adjacent
 
 [Nero Kane - Of Knowledge and Revelation](https://nerokane.bandcamp.com/album/of-knowledge-and-revelation) <- Witchy (FITH adjacent)
 
