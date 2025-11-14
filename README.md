@@ -2,6 +2,8 @@
 
 ## November 2025
 
+[Steve Reich: Six Pianos & Terry Riley: Keyboard Study #1](https://futureislisteningmusic.bandcamp.com/album/steve-reich-six-pianos-terry-riley-keyboard-study-1)
+
 [feeo - Goodness](https://feeo.bandcamp.com/album/goodness) <- Shiloh Dynasty / FKA Twigs adjacent
 
 [Nero Kane - Of Knowledge and Revelation](https://nerokane.bandcamp.com/album/of-knowledge-and-revelation) <- Witchy (FITH adjacent)
