@@ -1,5 +1,13 @@
 # playlist
 
+## December 2025
+
+[Merzbow - Merzbeat](https://masamiakitamerzbow.bandcamp.com/album/merzbeat-remastered) <- Surprisingly listenable.
+
+[Loke Rahbek & Puce Mary - The Female Form](https://puce-mary.bandcamp.com/album/the-female-form-2) <- Puce Mary. With Complete Will is the hit. 
+
+[Iris Our - Victual Vittle Bottle Cunt](https://recitalprogram.bandcamp.com/album/victual-vittle-bottle-cunt) <- Coil/FITH. Good.
+
 ## November 2025
 
 [Steve Reich: Six Pianos & Terry Riley: Keyboard Study #1](https://futureislisteningmusic.bandcamp.com/album/steve-reich-six-pianos-terry-riley-keyboard-study-1)
