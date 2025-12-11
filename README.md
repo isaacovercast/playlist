@@ -4,7 +4,7 @@
 
 [Merzbow - Merzbeat](https://masamiakitamerzbow.bandcamp.com/album/merzbeat-remastered) <- Surprisingly listenable.
 
-[Loke Rahbek & Puce Mary - The Female Form](https://puce-mary.bandcamp.com/album/the-female-form-2) <- Puce Mary. With Complete Will is the hit. 
+[Loke Rahbek & Puce Mary - The Female Form](https://puce-mary.bandcamp.com/album/the-female-form-2) <- Puce Mary. "With Complete Will" is the hit. 
 
 [Iris Our - Victual Vittle Bottle Cunt](https://recitalprogram.bandcamp.com/album/victual-vittle-bottle-cunt) <- Coil/FITH. Good.
 
