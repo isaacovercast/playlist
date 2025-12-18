@@ -1,6 +1,12 @@
 # playlist
 
+## January 2026
+
+[Yamila - Noor](https://umorrex.bandcamp.com/album/noor)
+
 ## December 2025
+
+[Yamila - Visions](https://umorrex.bandcamp.com/album/visions-2) <- Radiant & Intense.
 
 [Merzbow - Merzbeat](https://masamiakitamerzbow.bandcamp.com/album/merzbeat-remastered) <- Surprisingly listenable.
 
