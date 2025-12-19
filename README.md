@@ -6,6 +6,9 @@
 
 ## December 2025
 
+
+[Giusto Pio - Motore immobile](https://soave.bandcamp.com/album/motore-immobile) <- Italian minimalism
+
 [Yamila - Visions](https://umorrex.bandcamp.com/album/visions-2) <- Radiant & Intense.
 
 [Merzbow - Merzbeat](https://masamiakitamerzbow.bandcamp.com/album/merzbeat-remastered) <- Surprisingly listenable.
