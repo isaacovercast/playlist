@@ -6,7 +6,7 @@
 
 ## December 2025
 
-[Los Thuthanaka - Los Thuthanaka](https://losthuthanaka.bandcamp.com/album/los-thuthanaka-2)
+[Los Thuthanaka - Los Thuthanaka](https://losthuthanaka.bandcamp.com/album/los-thuthanaka-2) <- Parrandita is the entry point.
 
 [Giusto Pio - Motore immobile](https://soave.bandcamp.com/album/motore-immobile) <- Italian minimalism
 
