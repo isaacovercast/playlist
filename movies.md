@@ -23,3 +23,22 @@
   * After Hours (1985)
 
 * [Donkey Skin](https://en.wikipedia.org/wiki/Donkey_Skin_(film))
+* [Songs from the Second Floor](https://en.wikipedia.org/wiki/Songs_from_the_Second_Floor)
+* [Midsommar](https://en.wikipedia.org/wiki/Midsommar)
+* [Hundreds of Beavers](https://en.wikipedia.org/wiki/Hundreds_of_Beavers)
+* [The Inner Scar](https://en.wikipedia.org/wiki/The_Inner_Scar)
+* [Mirror (Tarkovsky)](https://en.wikipedia.org/wiki/Mirror_(1975_film))
+
+## Scifi
+* [Until the End of the World](https://en.wikipedia.org/wiki/Until_the_End_of_the_World)
+* [Hard to be a God](https://en.wikipedia.org/wiki/Hard_to_Be_a_God_(2013_film))
+* [High Life](https://en.wikipedia.org/wiki/High_Life_(2018_film))
+* [The Adventures of Buratino](https://en.wikipedia.org/wiki/The_Adventures_of_Buratino_(1975_film))
+* [On the Silver Globe](https://en.wikipedia.org/wiki/On_the_Silver_Globe_(film))
+* [Valerie and Her Week of Wonders](https://en.wikipedia.org/wiki/Valerie_and_Her_Week_of_Wonders_(film))
+* [Mister Designer](https://en.wikipedia.org/wiki/Mister_Designer)
+* [Birds, Orphans and Fools](https://en.wikipedia.org/wiki/Birds,_Orphans_and_Fools)
+* [Bugonia](https://en.wikipedia.org/wiki/Bugonia_(film))
+* [Penda's Fen](https://en.wikipedia.org/wiki/Penda's_Fen)
+* [Rabbit Trap](https://en.wikipedia.org/wiki/Rabbit_Trap)
+* [Morgiana](https://en.wikipedia.org/wiki/Morgiana_(film))
