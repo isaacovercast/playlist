@@ -40,5 +40,7 @@
 * [Birds, Orphans and Fools](https://en.wikipedia.org/wiki/Birds,_Orphans_and_Fools)
 * [Bugonia](https://en.wikipedia.org/wiki/Bugonia_(film))
 * [Penda's Fen](https://en.wikipedia.org/wiki/Penda's_Fen)
-* [Rabbit Trap](https://en.wikipedia.org/wiki/Rabbit_Trap)
 * [Morgiana](https://en.wikipedia.org/wiki/Morgiana_(film))
+
+## Witchy
+* [Rabbit Trap (2025)](https://en.wikipedia.org/wiki/Rabbit_Trap) - (12/31/25) 4/5✨ Slow burn, quiet and haunting. Dont mess with fairy circles. Opens many doors that are never closed, and the music and sound design are nice so it could be worth a second look.
