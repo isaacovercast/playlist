@@ -1,5 +1,4 @@
 # Movies
-* [Film](https://en.wikipedia.org/wiki/Film_(film))
 * [Train Dreams](https://en.wikipedia.org/wiki/Train_Dreams_(film))
 * [No Other Choice](https://en.wikipedia.org/wiki/No_Other_Choice)
 * [Resurrection](https://en.wikipedia.org/wiki/Resurrection_(2025_film))
@@ -10,7 +9,7 @@
 * [Neptune Frost](https://www.imdb.com/title/tt11873472/)
 * [5 Czech movies](https://www.instagram.com/reel/CzWUK20v5GJ/?igshid=MTc4MmM1YmI2Ng==)
 * [Picnic at Hanging Rock](https://en.wikipedia.org/wiki/Picnic_at_Hanging_Rock_(film))
-
+* [The Death of Maria Malibran (1972)](https://m.youtube.com/watch?v=76wqanCMP3A)
 * [Films recommended by Agnes Varda](https://www.instagram.com/p/DIbhrWWTfVI/?igsh=cjllMXR3N3N6bXo0&img_index=1)
   * The Mirror (1975)
   * A Woman Under the Influence (1974)
@@ -42,5 +41,14 @@
 * [Penda's Fen](https://en.wikipedia.org/wiki/Penda's_Fen)
 * [Morgiana](https://en.wikipedia.org/wiki/Morgiana_(film))
 
+## Misc
+[Anita: Dances of Vice](https://en.wikipedia.org/wiki/Anita:_Dances_of_Vice)
+
+## Shorts
+* [Johannas Traum (1975)](https://www.youtube.com/watch?v=cuM152a5HAo)
+* [L'Étoile de mer (Short 1928)](https://www.youtube.com/watch?v=kL_uhfn-gDQ)
+* [Film](https://en.wikipedia.org/wiki/Film_(film))
+
 ## Witchy
 * [Rabbit Trap (2025)](https://en.wikipedia.org/wiki/Rabbit_Trap) - (12/31/25) 4/5✨ Slow burn, quiet and haunting. Dont mess with fairy circles. Opens many doors that are never closed, and the music and sound design are nice so it could be worth a second look.
+
