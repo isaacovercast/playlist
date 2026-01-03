@@ -2,7 +2,7 @@
 * [Train Dreams](https://en.wikipedia.org/wiki/Train_Dreams_(film))
 * [No Other Choice](https://en.wikipedia.org/wiki/No_Other_Choice)
 * [Resurrection](https://en.wikipedia.org/wiki/Resurrection_(2025_film))
-* [November (2017)](https://en.wikipedia.org/wiki/November_(2017_film))
+
 * [The Color of Pomegranates](https://en.wikipedia.org/wiki/The_Color_of_Pomegranates)
 * [Enys Men](https://www.enysmen.co.uk/?fbclid=PAAaZgCTd7yEaSIGKB7YNp45Yp3E1IOCDIhtsCF_jj_MduCcv78YpLeeFv5Mg)
 * [Save yourselves!](https://www.imdb.com/title/tt7873348/)
@@ -51,4 +51,4 @@
 
 ## Witchy
 * [Rabbit Trap (2025)](https://en.wikipedia.org/wiki/Rabbit_Trap) - (12/31/25) 4/5✨ Slow burn, quiet and haunting. Dont mess with fairy circles. Opens many doors that are never closed, and the music and sound design are nice so it could be worth a second look.
-
+* [November (2017)](https://en.wikipedia.org/wiki/November_(2017_film)) - (01/02/26) 4.5/5✨ Beautiful, hypnotic, full of dream logic. Estonian mythology. Shot in B/W and saturated with imagery.
