@@ -51,5 +51,5 @@
 ## Witchy
 * [Rabbit Trap (2025)](https://en.wikipedia.org/wiki/Rabbit_Trap) - (12/31/25) 4/5 :sparkles: Slow burn, quiet and haunting. Dont mess with fairy circles. Opens many doors that are never closed, and the music and sound design are nice so it could be worth a second look.
 * [November (2017)](https://en.wikipedia.org/wiki/November_(2017_film)) - (01/02/26) 4.5/5 :sparkles: Beautiful, hypnotic, full of dream logic. Estonian mythology. Shot in B/W and saturated with imagery.
-* [Midsommar (2019; A24)](https://en.wikipedia.org/wiki/Midsommar) - (01/04/26) 3.5/5 :sparkles: Classified as 'folk horror', but it's really just a horror movie with folk-y themes. The main characters are flat, and it's mostly obvious what will happen and why because it follows a horror movie story arc. A nice watch but probably don't need to see it again.
+* [Midsommar (2019; A24)](https://en.wikipedia.org/wiki/Midsommar) - (01/04/26) 3.2/5 :sparkles: Classified as 'folk horror', but it's really just a horror movie with folk-y themes. The main characters are flat, and it's mostly obvious what will happen and why because it follows a horror movie story arc. A nice watch but probably don't need to see it again.
 
