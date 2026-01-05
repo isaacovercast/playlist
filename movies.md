@@ -23,7 +23,6 @@
 
 * [Donkey Skin](https://en.wikipedia.org/wiki/Donkey_Skin_(film))
 * [Songs from the Second Floor](https://en.wikipedia.org/wiki/Songs_from_the_Second_Floor)
-* [Midsommar](https://en.wikipedia.org/wiki/Midsommar)
 * [Hundreds of Beavers](https://en.wikipedia.org/wiki/Hundreds_of_Beavers)
 * [The Inner Scar](https://en.wikipedia.org/wiki/The_Inner_Scar)
 * [Mirror (Tarkovsky)](https://en.wikipedia.org/wiki/Mirror_(1975_film))
@@ -50,5 +49,7 @@
 * [Film](https://en.wikipedia.org/wiki/Film_(film))
 
 ## Witchy
-* [Rabbit Trap (2025)](https://en.wikipedia.org/wiki/Rabbit_Trap) - (12/31/25) 4/5✨ Slow burn, quiet and haunting. Dont mess with fairy circles. Opens many doors that are never closed, and the music and sound design are nice so it could be worth a second look.
-* [November (2017)](https://en.wikipedia.org/wiki/November_(2017_film)) - (01/02/26) 4.5/5✨ Beautiful, hypnotic, full of dream logic. Estonian mythology. Shot in B/W and saturated with imagery.
+* [Rabbit Trap (2025)](https://en.wikipedia.org/wiki/Rabbit_Trap) - (12/31/25) 4/5:sparkles: Slow burn, quiet and haunting. Dont mess with fairy circles. Opens many doors that are never closed, and the music and sound design are nice so it could be worth a second look.
+* [November (2017)](https://en.wikipedia.org/wiki/November_(2017_film)) - (01/02/26) 4.5/5:sparkles: Beautiful, hypnotic, full of dream logic. Estonian mythology. Shot in B/W and saturated with imagery.
+* [Midsommar (2019; A24)](https://en.wikipedia.org/wiki/Midsommar) - (01/04/26) 3.7/5:sparkles: A nice watch but probably don't need to see it again. The main characters are pretty flat, and it's mostly obvious what will happen and why.
+
