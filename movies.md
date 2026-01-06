@@ -53,3 +53,6 @@
 
 ## Drama
 * [Train Dreams](https://en.wikipedia.org/wiki/Train_Dreams_(film)) - (01/05/26) 3.7/5 :sparkles: A bit Terrence Malick, a bit Place Beyond the Pines, but doesn't make it all the way there in either case. If I was in the mood I would rather re-watch Days of Heaven probably 99 times out of 100.
+
+## Scifi
+* [The Running Man (2025)](https://en.wikipedia.org/wiki/The_Running_Man_(2025_film)) - (01/05/26) 2/5 :sparkles: Pointless.
