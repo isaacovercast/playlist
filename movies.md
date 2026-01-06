@@ -1,7 +1,6 @@
 # Movies
 * [No Other Choice](https://en.wikipedia.org/wiki/No_Other_Choice)
 * [Resurrection](https://en.wikipedia.org/wiki/Resurrection_(2025_film))
-
 * [The Color of Pomegranates](https://en.wikipedia.org/wiki/The_Color_of_Pomegranates)
 * [Enys Men](https://www.enysmen.co.uk/?fbclid=PAAaZgCTd7yEaSIGKB7YNp45Yp3E1IOCDIhtsCF_jj_MduCcv78YpLeeFv5Mg)
 * [Save yourselves!](https://www.imdb.com/title/tt7873348/)
