@@ -1,5 +1,4 @@
 # Movies
-* [Train Dreams](https://en.wikipedia.org/wiki/Train_Dreams_(film))
 * [No Other Choice](https://en.wikipedia.org/wiki/No_Other_Choice)
 * [Resurrection](https://en.wikipedia.org/wiki/Resurrection_(2025_film))
 
@@ -53,3 +52,5 @@
 * [November (2017)](https://en.wikipedia.org/wiki/November_(2017_film)) - (01/02/26) 4.5/5 :sparkles: Beautiful, hypnotic, full of dream logic. Estonian mythology. Shot in B/W and saturated with imagery.
 * [Midsommar (2019; A24)](https://en.wikipedia.org/wiki/Midsommar) - (01/04/26) 3.2/5 :sparkles: Classified as 'folk horror', but it's really just a horror movie with folk-y themes. The main characters are flat, and it's mostly obvious what will happen and why because it follows a horror movie story arc. A nice watch but probably don't need to see it again.
 
+## Drama
+* [Train Dreams](https://en.wikipedia.org/wiki/Train_Dreams_(film)) - (01/05/26) 3.7/5 :sparkles: A bit Terrence Malick, a bit Place Beyond the Pines, but doesn't make it all the way there in either case. If I was in the mood I would rather re-watch Days of Heaven probably 99 times out of 100.
