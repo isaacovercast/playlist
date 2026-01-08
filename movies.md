@@ -30,7 +30,6 @@
 * [Hard to be a God](https://en.wikipedia.org/wiki/Hard_to_Be_a_God_(2013_film))
 * [High Life](https://en.wikipedia.org/wiki/High_Life_(2018_film))
 * [The Adventures of Buratino](https://en.wikipedia.org/wiki/The_Adventures_of_Buratino_(1975_film))
-* [On the Silver Globe](https://en.wikipedia.org/wiki/On_the_Silver_Globe_(film))
 * [Valerie and Her Week of Wonders](https://en.wikipedia.org/wiki/Valerie_and_Her_Week_of_Wonders_(film))
 * [Mister Designer](https://en.wikipedia.org/wiki/Mister_Designer)
 * [Birds, Orphans and Fools](https://en.wikipedia.org/wiki/Birds,_Orphans_and_Fools)
@@ -56,3 +55,4 @@
 
 ## Scifi
 * [The Running Man (2025)](https://en.wikipedia.org/wiki/The_Running_Man_(2025_film)) - (01/05/26) 2/5 :sparkles: Pointless.
+* [On the Silver Globe](https://en.wikipedia.org/wiki/On_the_Silver_Globe_(film)) [Youtube](https://www.youtube.com/watch?v=BRxfJOBYD6k) - (01/07/26) 4/5 ✨ Extremely oblique. Lots of camera POV, time shifts, and obscure dialogue. Feels like 2001 made in a renegade fashion, loose.
