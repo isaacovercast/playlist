@@ -22,7 +22,6 @@
 * [Donkey Skin](https://en.wikipedia.org/wiki/Donkey_Skin_(film))
 * [Songs from the Second Floor](https://en.wikipedia.org/wiki/Songs_from_the_Second_Floor)
 * [Hundreds of Beavers](https://en.wikipedia.org/wiki/Hundreds_of_Beavers)
-* [The Inner Scar](https://en.wikipedia.org/wiki/The_Inner_Scar)
 * [Mirror (Tarkovsky)](https://en.wikipedia.org/wiki/Mirror_(1975_film))
 
 ## Scifi
@@ -49,6 +48,7 @@
 * [Rabbit Trap (2025)](https://en.wikipedia.org/wiki/Rabbit_Trap) - (12/31/25) 4/5 :sparkles: Slow burn, quiet and haunting. Dont mess with fairy circles. Opens many doors that are never closed, and the music and sound design are nice so it could be worth a second look.
 * [November (2017)](https://en.wikipedia.org/wiki/November_(2017_film)) - (01/02/26) 4.5/5 :sparkles: Beautiful, hypnotic, full of dream logic. Estonian mythology. Shot in B/W and saturated with imagery.
 * [Midsommar (2019; A24)](https://en.wikipedia.org/wiki/Midsommar) - (01/04/26) 3.2/5 :sparkles: Classified as 'folk horror', but it's really just a horror movie with folk-y themes. The main characters are flat, and it's mostly obvious what will happen and why because it follows a horror movie story arc. A nice watch but probably don't need to see it again.
+* [The Inner Scar (1972)](https://en.wikipedia.org/wiki/The_Inner_Scar) - (01/07/26) 4/5 :sparkles: Basically an extended Nico music video. Some nice imagery, but not sure it hangs together very well beyond just being about Nico.
 
 ## Drama
 * [Train Dreams (2025)](https://en.wikipedia.org/wiki/Train_Dreams_(film)) - (01/05/26) 3.7/5 :sparkles: A bit Terrence Malick, a bit Place Beyond the Pines, but doesn't make it all the way there in either case. If I was in the mood I would rather re-watch Days of Heaven probably 99 times out of 100.
