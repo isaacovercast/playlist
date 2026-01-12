@@ -2,7 +2,13 @@
 
 ## January 2026
 
-[Yamila - Noor](https://umorrex.bandcamp.com/album/noor)
+[Tarta Relena - Fiat Lux](https://tartarelena.bandcamp.com/album/fiat-lux) & [És pregunta](https://tartarelena.bandcamp.com/album/s-pregunta) <- See Yamila, Ksi​ę​ż​yc, Svitlana Nianio.
+ 
+[Loke Rahbek & Puce Mary - The Female Form](https://puce-mary.bandcamp.com/album/the-female-form-2) <- Puce Mary, always good.
+
+[Death in June - But What Ends When the Symbols Shatter?](https://open.spotify.com/album/7JmRt4qAHnHLaYiTzNxlNa) <- Of the wand and the moon, similar. Not sure why it took so long for me to check this out. Little Black Angel is good.
+
+[Yamila - Noor](https://umorrex.bandcamp.com/album/noor) <- Mystical, folkloric, and noisy. Similar to Ksi​ę​ż​yc or Svitlana Nianio.
 
 ## December 2025
 
