@@ -1,8 +1,12 @@
 # playlist
 
+## March 2026
+
+[Delphine Dora - L'ineluctable pulsation du temps](https://delphinedora.bandcamp.com/album/lineluctable-pulsation-du-temps) 
+
 ## February 2026
 
-[Caterina Barbieri & Bendik Giske - At Source](https://caterinabarbieri.bandcamp.com/album/at-source) <- Releases Feb 27
+[Caterina Barbieri & Bendik Giske - At Source](https://caterinabarbieri.bandcamp.com/album/at-source) <- Releases Feb 27. Similar to Ksi​ę​ż​yc or Svitlana Nianio. Deep [bandcamp catalog](https://delphinedora.bandcamp.com/). [Mystères (non) Révélés](https://delphinedora.bandcamp.com/album/myst-res-non-r-v-l-s) is also good.
 
 ## January 2026
 
