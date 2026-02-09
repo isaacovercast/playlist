@@ -2,6 +2,8 @@
 
 ## March 2026
 
+[Charlemagne Palestine - Strumming Music](https://felmayrecordsminimal.bandcamp.com/album/strumming-music) <- Minimalist piano classic
+
 [Delphine Dora - L'ineluctable pulsation du temps](https://delphinedora.bandcamp.com/album/lineluctable-pulsation-du-temps) 
 
 ## February 2026
