@@ -1,23 +1,25 @@
 # playlist
 
 ## March 2026
+[Capricorni Pneumatici – Über Artaud](https://www.youtube.com/watch?v=3hx9xYIgpuY) <- Can't decide if I like it but have listened to it several times. Reminds me of that one [Precipitation record](https://precipitation.bandcamp.com/album/meditations-on-the-self-and-the-other).
+* [Antonin Artaud - Pour en finir avec le jugement de dieu](https://subrosalabel.bandcamp.com/album/pour-en-finir-avec-le-jugement-de-dieu), the Artaud radio play it is based on.
+* They have a bunch of stuff on [Soundohm](https://www.soundohm.com/artist/capricorni-pneumatici?layout=big-grid) & bandcamp (e.g. [Nibbas](https://eighthtowerrecords.bandcamp.com/album/nibbas))
 
+[Henry Flynt - You are my Everlovin'](https://www.youtube.com/watch?v=WBiLeTVieSQ&t=1061s) <- Fiddle & drone.  
 [Charlemagne Palestine - Strumming Music](https://felmayrecordsminimal.bandcamp.com/album/strumming-music) <- Minimalist piano classic
 
-[Delphine Dora - L'ineluctable pulsation du temps](https://delphinedora.bandcamp.com/album/lineluctable-pulsation-du-temps) 
+[Delphine Dora - L'ineluctable pulsation du temps](https://delphinedora.bandcamp.com/album/lineluctable-pulsation-du-temps)
+* Deep [bandcamp catalog](https://delphinedora.bandcamp.com/). [Mystères (non) Révélés](https://delphinedora.bandcamp.com/album/myst-res-non-r-v-l-s) is also good.
 
 ## February 2026
 
-[Caterina Barbieri & Bendik Giske - At Source](https://caterinabarbieri.bandcamp.com/album/at-source) <- Releases Feb 27. Similar to Ksi​ę​ż​yc or Svitlana Nianio. Deep [bandcamp catalog](https://delphinedora.bandcamp.com/). [Mystères (non) Révélés](https://delphinedora.bandcamp.com/album/myst-res-non-r-v-l-s) is also good.
+[Caterina Barbieri & Bendik Giske - At Source](https://caterinabarbieri.bandcamp.com/album/at-source) <- Releases Feb 27. Similar to Ksi​ę​ż​yc or Svitlana Nianio. 
 
 ## January 2026
 
-[Tarta Relena - Fiat Lux](https://tartarelena.bandcamp.com/album/fiat-lux) & [És pregunta](https://tartarelena.bandcamp.com/album/s-pregunta) <- See Yamila, Ksi​ę​ż​yc, Svitlana Nianio.
- 
-[Loke Rahbek & Puce Mary - The Female Form](https://puce-mary.bandcamp.com/album/the-female-form-2) <- Puce Mary, always good.
-
-[Death in June - But What Ends When the Symbols Shatter?](https://open.spotify.com/album/7JmRt4qAHnHLaYiTzNxlNa) <- Of the wand and the moon, similar. Not sure why it took so long for me to check this out. Little Black Angel is good.
-
+[Tarta Relena - Fiat Lux](https://tartarelena.bandcamp.com/album/fiat-lux) & [És pregunta](https://tartarelena.bandcamp.com/album/s-pregunta) <- See Yamila, Ksi​ę​ż​yc, Svitlana Nianio.  
+[Loke Rahbek & Puce Mary - The Female Form](https://puce-mary.bandcamp.com/album/the-female-form-2) <- Puce Mary, always good.  
+[Death in June - But What Ends When the Symbols Shatter?](https://open.spotify.com/album/7JmRt4qAHnHLaYiTzNxlNa) <- Of the wand and the moon, similar. Not sure why it took so long for me to check this out. Little Black Angel is good.  
 [Yamila - Noor](https://umorrex.bandcamp.com/album/noor) <- Mystical, folkloric, and noisy. Similar to Ksi​ę​ż​yc or Svitlana Nianio.
 
 ## December 2025
