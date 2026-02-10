@@ -1,7 +1,7 @@
 # playlist
 
 ## March 2026
-[Capricorni Pneumatici – Über Artaud](https://www.youtube.com/watch?v=3hx9xYIgpuY) <- Can't decide if I like it but have listened to it several times. Reminds me of that one [Precipitation record](https://precipitation.bandcamp.com/album/meditations-on-the-self-and-the-other).
+[Capricorni Pneumatici – Über Artaud](https://www.youtube.com/watch?v=3hx9xYIgpuY) <- Early Italian experimental, reminds me of that one [Precipitation record](https://precipitation.bandcamp.com/album/meditations-on-the-self-and-the-other).
 * [Antonin Artaud - Pour en finir avec le jugement de dieu](https://subrosalabel.bandcamp.com/album/pour-en-finir-avec-le-jugement-de-dieu), the Artaud radio play it is based on.
 * They have a bunch of stuff on [Soundohm](https://www.soundohm.com/artist/capricorni-pneumatici?layout=big-grid) & bandcamp (e.g. [Nibbas](https://eighthtowerrecords.bandcamp.com/album/nibbas))
 
