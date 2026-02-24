@@ -1,6 +1,9 @@
 # playlist
 
-## March 2026
+## February 2026
+
+[Lori Goldston - Open Space](https://relativepitchrecords.bandcamp.com/album/open-space) - "My cello, an amp, and a distortion pedal."
+
 [Capricorni Pneumatici – Über Artaud](https://www.youtube.com/watch?v=3hx9xYIgpuY) <- Early Italian experimental, reminds me of that one [Precipitation record](https://precipitation.bandcamp.com/album/meditations-on-the-self-and-the-other).
 * [Antonin Artaud - Pour en finir avec le jugement de dieu](https://subrosalabel.bandcamp.com/album/pour-en-finir-avec-le-jugement-de-dieu), the Artaud radio play it is based on.
 * They have a bunch of stuff on [Soundohm](https://www.soundohm.com/artist/capricorni-pneumatici?layout=big-grid) & bandcamp (e.g. [Nibbas](https://eighthtowerrecords.bandcamp.com/album/nibbas))
@@ -10,8 +13,6 @@
 
 [Delphine Dora - L'ineluctable pulsation du temps](https://delphinedora.bandcamp.com/album/lineluctable-pulsation-du-temps)
 * Deep [bandcamp catalog](https://delphinedora.bandcamp.com/). [Mystères (non) Révélés](https://delphinedora.bandcamp.com/album/myst-res-non-r-v-l-s) is also good.
-
-## February 2026
 
 [Caterina Barbieri & Bendik Giske - At Source](https://caterinabarbieri.bandcamp.com/album/at-source) <- Releases Feb 27. Similar to Ksi​ę​ż​yc or Svitlana Nianio. 
 
