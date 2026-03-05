@@ -23,6 +23,7 @@
 * [Songs from the Second Floor](https://en.wikipedia.org/wiki/Songs_from_the_Second_Floor)
 * [Hundreds of Beavers](https://en.wikipedia.org/wiki/Hundreds_of_Beavers)
 * [Mirror (Tarkovsky)](https://en.wikipedia.org/wiki/Mirror_(1975_film))
+* [Alice in the Cities (Wim Wenders, 1974)](https://en.wikipedia.org/wiki/Alice_in_the_Cities)
 
 ## Scifi
 * [Until the End of the World](https://en.wikipedia.org/wiki/Until_the_End_of_the_World)
