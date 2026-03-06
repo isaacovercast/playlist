@@ -1,5 +1,11 @@
 # playlist
 
+## March 2026
+
+[Hawthonn - Sir Gawain and the Green Knight](https://xetb.bandcamp.com/album/sir-gawain-and-the-green-knight) <- This band is doing their damndest to impersonate Coil's 'moon musick' phase, and they do a very good job.
+* Also [Red Goddess (of this men shall know nothing)](https://xetb.bandcamp.com/album/red-goddess-of-this-men-shall-know-nothing)
+* Also [Earth Mirror](https://xetb.bandcamp.com/album/earth-mirror)
+
 ## February 2026
 
 [Lori Goldston - Open Space](https://relativepitchrecords.bandcamp.com/album/open-space) - "My cello, an amp, and a distortion pedal."
