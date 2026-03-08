@@ -2,6 +2,8 @@
 
 ## March 2026
 
+[John Duncan - Bitter Earth(https://idealrecordings.bandcamp.com/album/bitter-earth) <- Compared to Downwelling and also Daniel Johnston
+
 [Hawthonn - Sir Gawain and the Green Knight](https://xetb.bandcamp.com/album/sir-gawain-and-the-green-knight) <- This band is doing their damndest to impersonate Coil's 'moon musick' phase, and they do a very good job.
 * Also [Red Goddess (of this men shall know nothing)](https://xetb.bandcamp.com/album/red-goddess-of-this-men-shall-know-nothing)
 * Also [Earth Mirror](https://xetb.bandcamp.com/album/earth-mirror)
