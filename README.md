@@ -93,8 +93,9 @@
 
 ## June 2025
 
-[Julius Eastman - Three Extended Pieces For Four Pianos](https://subrosalabel.bandcamp.com/album/three-extended-pieces-for-four-pianos)
- 
+[Julius Eastman - Three Extended Pieces For Four Pianos](https://subrosalabel.bandcamp.com/album/three-extended-pieces-for-four-pianos)  
+[Julius Eastman - Femenine](https://frozenreeds.bandcamp.com/album/femenine) <- Soothing minimalist classic
+
 [Coil - Black Antlers](https://coilofficial.bandcamp.com/album/black-antlers)
 
 [Brìghde Chaimbeul - Sunwise](https://brighdechaimbeul.bandcamp.com/album/sunwise)
