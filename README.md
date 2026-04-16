@@ -2,6 +2,9 @@
 
 ## April 2026
 
+
+[Elodie Lauten - The Death of Don Juan](https://elodielauten.bandcamp.com/album/the-death-of-don-juan) <- A DIY punk opera from Downtown NYC 1986 ([liner notes tell the story](https://unseenworlds.com/blogs/linernotes/cosmically-hip-the-death-of-don-juan-by-kyle-gann)); featuring Arthur Russell which makes sense when you listen to it.
+
 [Richard Youngs – Advent (1988)](https://www.youtube.com/watch?v=MgVOuc8RQN8) <- Lo-fi minimalism fashioned around a relentless two-chord piano figure
 
 ## March 2026
@@ -39,7 +42,7 @@
 
 [Los Thuthanaka - Los Thuthanaka](https://losthuthanaka.bandcamp.com/album/los-thuthanaka-2) <- Parrandita is the entry point.
 
-[Giusto Pio - Motore immobile](https://soave.bandcamp.com/album/motore-immobile) <- Italian minimalism
+[Giusto Pio - Motore immobile](https://soave.bandcamp.com/album/motore-immobile) <- Italian minimalism, very soothing
 
 [Yamila - Visions](https://umorrex.bandcamp.com/album/visions-2) <- Radiant & Intense.
 
