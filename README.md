@@ -2,6 +2,9 @@
 
 ## April 2026
 
+[Bachi Da Pietra - Non Io](https://bachidapietra.bandcamp.com/album/non-io-2) - A little like Downwelling, reminds me in vibe of a Bluesy Suicide but not in sound at all.
+
+[Radwan Ghazi Moumneh & Frédéric D. Oberland - Eternal Life No End ليلة ظلماء ملعونة، كحياة طالبيها](https://rgmfdo.bandcamp.com/album/eternal-life-no-end) <- Difficult to categorize, maybe if young Areski was reborn in modern times.
 
 [Elodie Lauten - The Death of Don Juan](https://elodielauten.bandcamp.com/album/the-death-of-don-juan) <- A DIY punk opera from Downtown NYC 1986 ([liner notes tell the story](https://unseenworlds.com/blogs/linernotes/cosmically-hip-the-death-of-don-juan-by-kyle-gann)); featuring Arthur Russell which makes sense when you listen to it.
 
