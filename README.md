@@ -2,7 +2,7 @@
 
 ## April 2026
 
-[Bachi Da Pietra - Non Io](https://bachidapietra.bandcamp.com/album/non-io-2) - A little like Downwelling, Swans maybe, or the vibe of a bluesy Suicide but not the sound at all.
+[Bachi Da Pietra - Non Io](https://bachidapietra.bandcamp.com/album/non-io-2) - A little like Downwelling, Swans maybe, or the vibe of a bluesy Suicide but not the sound at all. [Lunedì](https://bachidapietra.bandcamp.com/track/luned-2) is a good entry-point.
 
 [Radwan Ghazi Moumneh & Frédéric D. Oberland - Eternal Life No End ليلة ظلماء ملعونة، كحياة طالبيها](https://rgmfdo.bandcamp.com/album/eternal-life-no-end) <- Difficult to categorize, maybe if young Areski was reborn in modern times.
 
