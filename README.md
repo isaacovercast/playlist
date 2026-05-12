@@ -1,5 +1,9 @@
 # playlist
 
+## May 2026
+
+[Tolerance - Divin](https://tolerancejapan.bandcamp.com/album/divin)
+
 ## April 2026
 
 [Bachi Da Pietra - Non Io](https://bachidapietra.bandcamp.com/album/non-io-2) - A little like Downwelling, Swans maybe, or the vibe of a bluesy Suicide but not the sound at all. [Lunedì](https://bachidapietra.bandcamp.com/track/luned-2) is a good entry-point.
