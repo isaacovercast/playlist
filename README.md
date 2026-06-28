@@ -2,7 +2,7 @@
 
 ## June 2026
 
-[Night School Records](https://night-school.bandcamp.com/) <- My new favorite label?
+[Night School Records](https://night-school.bandcamp.com/) <- My new favorite label? (e.g. Molly Nilsson)
 * [Gichard - Chins For Lefty](https://gichard.bandcamp.com/album/chins-for-lefty) <- "Hamming it up" is an absolute banger. Scratches the Laila Sakini & Lucy Van itch.
 * [Svitlana Nianio & Oleksandr Yurchenko](https://night-school.bandcamp.com/album/znayesh-yak-rozkazhy) <- Svitlana Nianio. Excellent.
 
