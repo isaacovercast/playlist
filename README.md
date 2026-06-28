@@ -1,5 +1,15 @@
 # playlist
 
+## June 2026
+
+[Night School Records](https://night-school.bandcamp.com/) <- My new favorite label?
+* [Gichard - Chins For Lefty](https://gichard.bandcamp.com/album/chins-for-lefty) <- "Hamming it up" is an absolute banger. Scratches the Laila Sakini & Lucy Van itch.
+* [Svitlana Nianio & Oleksandr Yurchenko](https://night-school.bandcamp.com/album/znayesh-yak-rozkazhy) <- Svitlana Nianio. Excellent.
+
+[Mug - The Well](https://mugmugmug.bandcamp.com/album/the-well) <- Somehow triangulates between Bowery Electric, Anohni and the Johnsons, & Not Waving & Dark Mark.
+
+[Midwest Ambient I](https://midwest-window.bandcamp.com/album/midwest-ambient-i) <- Cindy Block is the good one.
+
 ## May 2026
 
 [Tolerance - Divin](https://tolerancejapan.bandcamp.com/album/divin)
