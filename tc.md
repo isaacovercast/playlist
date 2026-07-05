@@ -12,3 +12,11 @@
 [Purity Ring - Shrines](https://www.youtube.com/playlist?list=PLfimnwaZdumhgKUbQFfp6y9u9Icu9w3Cv)
 
 [John Maus - We Must Become the Pitiless Censors of Ourselves](https://johnmaus.bandcamp.com/album/we-must-become-the-pitiless-censors-of-ourselves)
+
+[Youth Lagoon - The Year of Hibernation](https://youthlagoon.bandcamp.com/album/the-year-of-hibernation)
+
+[Kavinsky - Night Call](https://kavinsky.bandcamp.com/album/nightcall-ep)
+
+[Com Truise - In Decay](https://comtruise.bandcamp.com/album/in-decay)
+
+[Tycho - Dive](https://tycho.bandcamp.com/album/dive)
