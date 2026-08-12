@@ -51,6 +51,9 @@
 * [Midsommar (2019; A24)](https://en.wikipedia.org/wiki/Midsommar) - (01/04/26) 3.2/5 :sparkles: Classified as 'folk horror', but it's really just a horror movie with folk-y themes. The main characters are flat, and it's mostly obvious what will happen and why because it follows a horror movie story arc. A nice watch but probably don't need to see it again.
 * [The Inner Scar (1972)](https://en.wikipedia.org/wiki/The_Inner_Scar) - (01/07/26) 4/5 :sparkles: Basically an extended Nico music video. Some nice imagery, but not sure it hangs together very well beyond just being about Nico.
 
+## Comedy
+* [The Earth As Seen from the Moon / La Terra vista dalla Luna (1967; Pier Paolo Pasolini)](https://ok.ru/video/3146060925456) - (08/12/26) 4/5 :sparkles: Almost like an absurdist fable. Cartoonish gestures.
+
 ## Drama
 * [Train Dreams (2025)](https://en.wikipedia.org/wiki/Train_Dreams_(film)) - (01/05/26) 3.7/5 :sparkles: A bit Terrence Malick, a bit Place Beyond the Pines, but doesn't make it all the way there in either case. If I was in the mood I would rather re-watch Days of Heaven probably 99 times out of 100.
 
