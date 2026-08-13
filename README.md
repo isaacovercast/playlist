@@ -1,5 +1,9 @@
 # playlist
 
+## August 2026
+
+[Svitlana Nianio - Kytytsi](https://kokarecords.bandcamp.com/album/kytytsi) <- Nice. Several of the same songs from Transilvania Smile.
+
 ## June 2026
 
 [Night School Records](https://night-school.bandcamp.com/) <- My new favorite label? (e.g. Molly Nilsson)
