@@ -2,6 +2,8 @@
 
 ## August 2026
 
+[Solanaceae - Solanaceae](https://tescogermany.bandcamp.com/album/solanaceae) <- Secret :Of the wand and the moon: record ✨✨✨
+
 [Them Are Us Too - Amends](https://themareustoo.bandcamp.com/album/amends) & [Remain](https://themareustoo.bandcamp.com/album/remain) - 4AD-style 80s shoegaze
 
 [Lingua Ignota](https://linguaignota.bandcamp.com/music) <- Very good, can be harsh in a similar way to Puce Mary/Pharmakon/Humanbeast
