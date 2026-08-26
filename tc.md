@@ -1,5 +1,8 @@
 ## Albums from the TC days not to forget
 
+### John B Podcast
+* [097: Pirate Station Moscow Special](https://podcast.johnbpodcast.com/content/JohnBPodcast097.mp3) <- All killer
+* [132](https://podcast.johnbpodcast.com/content/JohnBPodcast132.mp3) <- 54:50 TC Shoutouts!
 
 [Austra - Feel It Break](https://austra.bandcamp.com/album/feel-it-break-2) <- Unapologetically listenable.
 
