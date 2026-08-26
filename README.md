@@ -2,6 +2,8 @@
 
 ## August 2026
 
+[Them Are Us Too - Amends](https://themareustoo.bandcamp.com/album/amends) & [Remain](https://themareustoo.bandcamp.com/album/remain) - 4AD-style 80s shoegaze
+
 [Lingua Ignota](https://linguaignota.bandcamp.com/music) <- Very good, can be harsh in a similar way to Puce Mary/Pharmakon/Humanbeast
 * [LET THE EVIL OF HIS OWN LIPS COVER HIM](https://linguaignota.bandcamp.com/album/let-the-evil-of-his-own-lips-cover-him), [ALL BITCHES DIE](https://linguaignota.bandcamp.com/album/all-bitches-die), [CALIGULA](https://linguaignota.bandcamp.com/album/caligula), [SINNER GET READY](https://linguaignota.bandcamp.com/album/sinner-get-ready)
 
