@@ -2,6 +2,8 @@
 
 ## August 2026
 
+[Wędrowiec - Wędrują nuk nieuzywają](https://incrudo.bandcamp.com/album/w-drowiec-w-druj-nuk-nieuzywaj-avant-folk) <- Members of Księżyc, leans more folk and less witchy but still good.
+
 [Solanaceae - Solanaceae](https://tescogermany.bandcamp.com/album/solanaceae) <- Secret :Of the wand and the moon: record ✨✨✨
 
 [Them Are Us Too - Amends](https://themareustoo.bandcamp.com/album/amends) & [Remain](https://themareustoo.bandcamp.com/album/remain) - 4AD-style 80s shoegaze
