@@ -1,5 +1,9 @@
 # playlist
 
+## October 2026
+
+[Tashi Dorji + Faith Coloccia - And Their Power Was Alive](https://tashidorji.bandcamp.com/album/and-their-power-was-alive) <- Scratches the same itch as that FRKWYS [Suzanne Ciani & Kaitlyn Aurelia Smith](https://kaitlynaureliasmith.bandcamp.com/album/frkwys-vol-13-sunergy) record. Not the same _sounding_ at all, but similar vibe. It's good.
+
 ## September 2026
 
 [Nico - BBC Peel Session 1971](https://nicobbc.bandcamp.com/album/bbc-peel-session-1971)
