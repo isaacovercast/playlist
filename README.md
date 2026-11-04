@@ -1,5 +1,11 @@
 # playlist
 
+## November 2026
+
+[Cocanha - Flame Folclòre](https://cocanha.bandcamp.com/album/flame-folcl-re) <- Similar direction as Tarta Rellena (and they have collaborated). Excellent.
+
+[Cocanha, Los Sara Fontán, Tarta Relena - 4132314](https://cocanha.bandcamp.com/album/4132314) <- Super group.
+
 ## October 2026
 
 [Tashi Dorji + Faith Coloccia - And Their Power Was Alive](https://tashidorji.bandcamp.com/album/and-their-power-was-alive) <- Scratches the same itch as that FRKWYS [Suzanne Ciani & Kaitlyn Aurelia Smith](https://kaitlynaureliasmith.bandcamp.com/album/frkwys-vol-13-sunergy) record. Not the same _sounding_ at all, but similar vibe. It's good.
