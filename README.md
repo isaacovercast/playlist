@@ -2,7 +2,7 @@
 
 ## November 2026
 
-[Cocanha - Flame Folclòre](https://cocanha.bandcamp.com/album/flame-folcl-re) <- Similar direction as Tarta Rellena (and they have collaborated). Excellent.
+[Cocanha - Flame Folclòre](https://cocanha.bandcamp.com/album/flame-folcl-re) <- Similar direction as Tarta Relena (and they have collaborated). Excellent.
 
 [Cocanha, Los Sara Fontán, Tarta Relena - 4132314](https://cocanha.bandcamp.com/album/4132314) <- Super group.
 
