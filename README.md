@@ -2,6 +2,9 @@
 
 ## November 2026
 
+
+[Nirosta Steel - MY SKYSCRAPER](https://ulyssa.bandcamp.com/album/my-skyscraper) <- Instant classic. Friend, neighbor, collaborator and co-conspirator of Arthur Russell.
+
 [Cocanha - Flame Folclòre](https://cocanha.bandcamp.com/album/flame-folcl-re) <- Similar direction as Tarta Relena (and they have collaborated). Excellent.
 
 [Cocanha, Los Sara Fontán, Tarta Relena - 4132314](https://cocanha.bandcamp.com/album/4132314) <- Super group.
